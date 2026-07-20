@@ -1,0 +1,2 @@
+# alaja-gaming
+Hi guys 
